@@ -159,3 +159,4 @@
 
 ## 参考
 - [野良で流行ってないルシムーブ](https://haremono4949.hatenablog.com/entry/2019/10/31/195146)
+- [【グラブル】ルシファーHLの簡単立ち回り](http://gbf-ani.blog.jp/archives/33708647.html)
